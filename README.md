@@ -1,5 +1,5 @@
-**雨云官网：[https://www.rainyun.com/cdn_](https://www.rainyun.com/cdn_ "https://www.rainyun.com/cdn_")**
-**优惠码：cdn**
+**雨云官网：[https://www.rainyun.com/BT_](https://www.rainyun.com/BT_ "https://www.rainyun.com/BT_")**
+**优惠码：BT**
 
 现在加入雨云最高享受7折优惠
 
